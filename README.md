@@ -1,4 +1,4 @@
-*— Vonko*
+*— T.v.K.Q.*
   
 Student at *Lycée International Français*. <br>
 Learning to code on my own; the internet is generous.
